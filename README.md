@@ -1,1 +1,1 @@
-# programowanie7zadanie2
+# s27256 Karol Hoppe
